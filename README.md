@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @justjackiethings
 - 👀 I’m interested in ... being a noob
 - 🌱 I’m currently learning ... how this shit works
-- 💞️ I’m looking to collaborate on ... absolutely nothing atm
+- 💞️ I’m looking to collaborate on ... absolutely nothing, unless you're my husband or someone we know, atm
 - 📫 How to reach me ... don't call us. We'll call you.
 - 😄 Pronouns: ... she/her/we/us
 - ⚡ Fun fact: ... the human head weighs 8 lbs. That's what the kid from the movies said, anyway.
